@@ -7,6 +7,98 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 08:42
+---
+
+## VahidOOnLine — post 240738
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240738_1779081153.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناصر عتباتی، رییس کل دادگستری آذربایجان غربی، از توقیف اموال ۱۲۹ نفر در این استان به اتهام «اقدامات ضدامنیتی و همکاری با کشورهای متخاصم» خبر داد. او تاکید کرد قوه قضاییه به این روند توقیف اموال «با قدرت» ادامه خواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 337722
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337722_1779081153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در روز جهانی ارتباطات، مسعود پزشکیان بدون اشاره به قطعی طولانی‌مدت اینترنت در ایران، دسترسی باکیفیت به خدمات دیجیتال را «حق مردم» دانست و نوشت دولت او برای برقرار ماندن ارتباطات، شبانه‌روز تلاش می‌کند.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337721
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337721_1779081155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناصر عتباتی، رییس کل دادگستری آذربایجان غربی، از توقیف اموال ۱۲۹ نفر در این استان به اتهام «اقدامات ضدامنیتی و همکاری با کشورهای متخاصم» خبر داد. او تاکید کرد قوه قضاییه به این روند توقیف اموال «با قدرت» ادامه خواهد داد.
+https://iranintl.com/202605185365
+</div>
+
+## ManotoTV — post 105583
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105583_1779081156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## ManotoTV — post 105582
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105582_1779081156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ تصویری بدون توضیح در شبکه اجتماعی خود منتشر کرده است که در آن، پرچم آمریکا سراسر خاورمیانه و کشورهای اطراف ایران را پوشانده و پیکان‌هایی به‌سوی داخل ایران کشیده شده‌اند.
+
+ترامپ ساعاتی پیش از انتشار این تصویر گفته بود که زمان برای ایران رو به پایان است.
+</div>
+
+## Persian_Trend_Official — post 14375
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14375_1779081157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 قیمت نفت برنت به 111 دلار رسید ‼️
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 105583
+
+<div align="center">
+  <a href="telegram/content/manototv_105583_1779081158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## manototv — post 105582
+
+<div align="center">
+  <a href="telegram/content/manototv_105582_1779081158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ تصویری بدون توضیح در شبکه اجتماعی خود منتشر کرده است که در آن، پرچم آمریکا سراسر خاورمیانه و کشورهای اطراف ایران را پوشانده و پیکان‌هایی به‌سوی داخل ایران کشیده شده‌اند.
+
+ترامپ ساعاتی پیش از انتشار این تصویر گفته بود که زمان برای ایران رو به پایان است.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 08:32
 ---
 
